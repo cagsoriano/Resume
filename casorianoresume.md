@@ -3,7 +3,7 @@
 ![CHARMAINE ANN SORIANO](https://scontent-lax3-2.xx.fbcdn.net/v/t1.0-9/18620425_10155238915751668_6462585634971828131_n.jpg?oh=080983c4f1d20c1043e356d5b024f5dc&oe=5A29E85D)  
 **_cagsoriano@gmail.com_**  
 **_+1(661)576-5533_**  
-Quick on my feet and eagerness to learn new things everyday is my greatest advantage. I see to it that I go the extra mile in everything that I do, from being a numbers-oriented category manager to being a loving homemaker. I thrive in picking up crucial details that would help me manage my daily activity and accomplish my responsibilities in an optimum. In my previous job, I was responsible for buying of products for the brand, vendor relationships, pricing, promotion encoding and allocation of items on all the company’s store front. Right now, I am looking for new endeavours that would help me build my talent as well as provide new grounds for a responsible and career growth.
+Quick on my feet and eagerness to learn new things everyday is my greatest advantage. I see to it that I go the extra mile in everything that I do, from being a numbers-oriented category manager to being a loving homemaker. I thrive in picking up crucial details that would help me manage my daily activity and accomplish my responsibilities in an optimum. In my previous job, I was responsible for buying of products for the brand, vendor relationships, pricing, promotion encoding and allocation of items on all the company’s store front. Right now, I am looking for new endeavours that would help me build my talent as well as provide new grounds for a responsible and valuable career growth.
 
 ## KEY SKILLS & COMPETENCIES
 
